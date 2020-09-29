@@ -1,19 +1,30 @@
 ## Welcome to Right Track Windsurfing
+
+There are not many things more distressing
+ than watching a windsurfer newbie struggle 
+on the wrong equipment. Buying the wrong equipment 
+is not only expensive, it will also severely spoil
+ your fun and make progress a painfully slow  
+process if not impossible. 
+
 Part of the fun of learning to windsurf is learning 
 all about the equipment. However nothing about
-Windsurfing is easy and it takes time and experience
- to understand about board types and fail types and 
-board volumes and sail sizes and quivers and 
-booms and masts and .... This means that in the 
-early years(!) people 
+windsurfing is easy and it takes time and experience
+ to understand all about the different board types, 
+sail types,
+board volumes, sail sizes, quivers,
+booms, masts, harnesses and ... OMG there's so much to it!
 
+
+### Save money and progress faster
+
+Right Track Windsurfing will keep you on
+the right track and help 
+establish, guide and source your equipment needs. 
+Whatever your budget we wil know where to look 
+and what to look for.
 
 
 ### Cost
-At present, because I'm rubbish at business, 
-I'm asking for a minimum donation to help 
-establish, guide and source your equipment 
-needs.
-
-
+At present I'm just asking for a minimum donation to 
 ### Contact
