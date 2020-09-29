@@ -20,14 +20,15 @@ booms, masts, harnesses and ... OMG there's so much to it!
 
 Right Track Windsurfing will keep you on
 the right track and help 
-establish, guide and source your equipment needs optimised for your current level. 
-Whatever your budget we wil know where to look 
-and what to look for and you will learn loads in the process.
+establish, guide and source your equipment needs, 
+optimised for your current level. 
+Whatever your budget I will know where to look 
+and what to look for. You will also learn loads in the process.
 
 
 ### Cost
 At present I'm just asking for a minimum donation so get on board now 
-and start receiving some (windsurfing) love.
+and start receiving some windsurfing love.
 
 
 ### Contact
