@@ -33,7 +33,7 @@ and start receiving some windsurfing love.
 
 
 ### Contact
-Send an email to rtwindsurfing@gmail.com
+Send an email to [rtwindsurfing@gmail.com](mailto:rtwindsurfing@gmail.com)
 
 Also on [Facebook @rtwindsurfing](https://www.facebook.com/rtwindsurfing/) 
 
