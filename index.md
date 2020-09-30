@@ -34,5 +34,7 @@ and start receiving some windsurfing love.
 
 ### Contact
 Send an email to rtwindsurfing@gmail.com
-Also on [Facebook](https://www.facebook.com/rtwindsurfing/) 
-@rtwindsurfing
+
+Also on [Facebook @rtwindsurfing](https://www.facebook.com/rtwindsurfing/) 
+
+
