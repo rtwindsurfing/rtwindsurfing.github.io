@@ -20,7 +20,8 @@ booms, masts, harnesses and ... OMG there's so much to it!
 
 Right Track Windsurfing will keep you on
 the right track in the early years and help 
-establish, guide and source your equipment needs which are
+establish, guide and source your equipment needs 
+from across all the different platforms. The equipment will be
 optimised for your current level. 
 Whatever your budget Right Track will know where to look 
 and what to look for. You will also learn loads in the process.
