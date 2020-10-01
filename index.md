@@ -26,9 +26,8 @@ optimised for your current level.
 Whatever your budget Right Track will know where to look 
 and what to look for. You will also learn loads in the process.
 
-
 ### Cost
-At present Right Track is just asking for a minimum donation so get on board now 
+At present some sort of minimum donation would be gratefully received so get on board now 
 and start receiving some windsurfing love.
 
 
