@@ -27,8 +27,11 @@ Whatever your budget Right Track will know where to look
 and what to look for. You will also learn loads in the process.
 
 ### Cost
-At present some sort of minimum donation would be gratefully received so get on board now 
-and start receiving some windsurfing love.
+At present it's a free service but if we do
+help you find equipment then a Little something
+ will be very gratefully received :)
+Get on board now 
+and start receiving some windsurfing love?
 
 
 ### Contact
