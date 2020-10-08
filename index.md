@@ -28,10 +28,10 @@ and what to look for. You will also learn loads in the process.
 
 ### Cost
 At present it's a free service but if we do
-help you find equipment then a Little something
- will be very gratefully received :)
+help you find equipment then a little donation
+ would be very gratefully received :)
 Get on board now 
-and start receiving some windsurfing love?
+and start receiving some windsurfing love!
 
 
 ### Contact
